@@ -116,10 +116,10 @@ http://www.citypass.com/new-york?mv_source=americanmuseumofnh&campaign=admission
 
 ## Otro día 
 - Cabo Hill (restaurante Reneé)
-- Promerade vista de Manhattan
+- Brooklyn Heights Promenade, vista de Manhattan
 - Dumbo
-- Brooklyn Bridge
-- Wall Street (ferry gratis) 
+- Brooklyn Bridge (DO walk across the Brooklyn Bridge. It’s crowded, but it’s so cool.)
+- Wall Street (Staten Island Ferry. It’s free and it’s a great half-hour boat-by of the Statue of Liberty.
 - Ver estatua de la libertad y regreso en metro. 
 - Se puede terminar con museo. 
 

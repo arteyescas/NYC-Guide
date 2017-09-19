@@ -58,3 +58,79 @@ November–February 10:00am – 4:45pm <br>
 Suggested Admission $23 <br>
 open daily from 10 am–5:45 pm <br>
 Pay-what-you-wish admission is available only at ticket counters, where the amount you pay is up to you. 
+
+# City Passes Information
+
+## NYC City Pass
+$116 per adult
+- Empire State 
+- Museum of Natural History
+- MET
+- Guggenheim
+- Liberty Statue / Ellis 
+- 9/11 Museum or Space Museum
+Get free entry into over 80 top NYC attractions including the American Museum of Natural History! 
+Choose from 1, 2, 3, 5, 7 and 10-day Passes. Each pass comes with a 230-pg guidebook, available in 8 languages.
+https://www.newyorkpass.com/En/?aid=54
+
+## NYC Explorer Pass
+3 choices $77
+4 choices $105
+5 choices $120
+Choose three, five, seven, or ten popular NYC sights — including the American Museum of Natural History — for one low price. 
+Valid for 30 days. Save up to 50% off admission price and get a free guidebook.
+https://www.smartdestinations.com/new-york-attractions-and-tours/_d_Nyc-p1.html?pass=Nyc_Prod_Exp&img=57&kbid=5866
+
+## CITYPASS
+Save 40% or more off New York's 6 best attractions, plus skip lines. 
+Valid for 9 days beginning with the first day of use.
+Cost: Adult $122
+http://www.citypass.com/new-york?mv_source=americanmuseumofnh&campaign=admission-ticketing
+
+
+# Itinerary Options
+
+## Day 1
+- Central Park
+- MET Zone
+- Public Library / NY Times
+- Italy, Italy rooftop
+- Hudson river / Highlane
+- Timesquare at night
+- Rudy's dinner + beer
+
+## Day 2
+- Green Village / Stonewall
+- Lower eastside
+- Chinatown
+- Congly 
+- Little Italy
+- SoHo
+- NoHo
+- Subir al Village (gaybar)
+
+## Otro día (puede ser Martes)
+- Brooklyn Botanical Garden
+- Brooklyn Museum
+- Park / Public Library
+
+## Otro día 
+- Cabo Hill (restaurante Reneé)
+- Promerade vista de Manhattan
+- Dumbo
+- Brooklyn Bridge
+- Wall Street (ferry gratis) 
+- Ver estatua de la libertad y regreso en metro. 
+- Se puede terminar con museo. 
+
+## Otro día 
+- Williamsburg 
+- Brunswick Street Art
+- Harlem / Gospel
+
+## Otro día
+- Coney Island
+- Brighton Beach
+- Barrio Ruso
+- Nathan Hotdogs
+

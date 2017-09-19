@@ -1,4 +1,4 @@
-# NYC-Guide
+# ** NYC-Guide **
 
 ## Free Attractions
 - Battery Park https://www.timeout.com/newyork/attractions/battery-park
@@ -22,7 +22,7 @@
 - Brooklyn Flea Market https://www.timeout.com/newyork/shopping/brooklyn-flea-1#tab_panel_2
 - Greenwood Cementery https://www.timeout.com/newyork/outdoor/green-wood-cemetery#tab_panel_2
 
-# MUSEUMS INFORMATION
+# ** MUSEUMS INFORMATION **
 
 ## MOMA
 Admission $25 <br>
@@ -59,7 +59,7 @@ Suggested Admission $23 <br>
 open daily from 10 am–5:45 pm <br>
 Pay-what-you-wish admission is available only at ticket counters, where the amount you pay is up to you. 
 
-# City Passes Information
+# ** City Passes Information **
 
 ## NYC City Pass
 $116 per adult
@@ -88,7 +88,7 @@ Cost: Adult $122
 http://www.citypass.com/new-york?mv_source=americanmuseumofnh&campaign=admission-ticketing
 
 
-# Itinerary Options
+# ** Itinerary Options **
 
 ## Day 1
 - Central Park
